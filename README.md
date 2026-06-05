@@ -2,11 +2,13 @@
   <img width="417" height="270" alt="1000027095" src="https://github.com/user-attachments/assets/48befb05-7796-419a-9d59-e43c062b9653" />
 </center>
 
+ㅤ
 
 <center>
   <sup>strictly w2i⠀⠀c+h ok if same fanfom⠀⠀mostly afk</sup>
 </center>
 
+ㅤ
 
 <center>
   <img width="97" height="57" alt="1000024900" src="https://github.com/user-attachments/assets/2c834da1-5fd9-4dbd-9949-7e5c0448baca" />
