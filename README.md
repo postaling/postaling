@@ -5,7 +5,7 @@
 ㅤ
 
 <p align="center">
-  <sup>strictly w2i⠀⠀c+h ok if same fanfom⠀⠀mostly afk</sup>
+  <sup>strictly w2i⠀⠀c+h ok if same fandom⠀⠀mostly afk</sup>
 </p>
 
 ㅤ
