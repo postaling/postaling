@@ -6,8 +6,8 @@
 
 <p align="center">
   <sup>strictly w2i⠀⠀c+h ok if same fandom⠀⠀mostly afk
-${\textf{\color(#a40000)safe server))$
-[ata](https://mercyangel.atabook.org/)ㅤㅤ[prns.pg](https://pronouns.page/kmsyaoi)</sup></p>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://mercyangel.atabook.org/">ata</a>ㅤㅤ<a href="https://pronouns.cc/@kmsyaoi">prns.cc</a></sup>
+</p>
 
 ㅤ
 
