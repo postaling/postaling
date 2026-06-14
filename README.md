@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="417" height="270" alt="1000027095" src="https://github.com/user-attachments/assets/48befb05-7796-419a-9d59-e43c062b9653" />
+  <img width="1200" height="204" alt="1000029388" src="https://github.com/user-attachments/assets/becd6ca4-a9cc-4bf2-a057-bfd3a827cfc6" />
 </p>
 
 ㅤ
@@ -11,10 +11,10 @@
 ㅤ
 
 <p align="center">
-  <img width="97" height="57" alt="1000024900" src="https://github.com/user-attachments/assets/2c834da1-5fd9-4dbd-9949-7e5c0448baca" />
-<img width="97" height="57" alt="1000028177" src="https://github.com/user-attachments/assets/2c6f28eb-4afd-41ce-95e5-862600e7f964" />
-<img width="97" height="57" alt="1000028178" src="https://github.com/user-attachments/assets/74014578-8dc5-4f7f-9c19-40e2648a378e" />
-<img width="97" height="57" alt="1000028185" src="https://github.com/user-attachments/assets/53fbf569-73a0-4be5-88ee-2cf0e42807e2" />
-<img width="97" height="57" alt="1000028186" src="https://github.com/user-attachments/assets/49188bc5-45f2-44ab-b22c-244b4d091804" />
-<img width="97" height="57" alt="1000028187" src="https://github.com/user-attachments/assets/23f64fd5-96d2-4c12-bf72-042772755d81" />
+  <img width="102" height="57" alt="Tumblr_l_160712875161193" src="https://github.com/user-attachments/assets/40d084ee-4447-41b6-87d3-c3edee4c6f34" />
+<img width="102" height="57" alt="Tumblr_l_160728957345886" src="https://github.com/user-attachments/assets/545313b2-723e-4ce3-9ee2-f7c69e71e220" />
+<img width="102" height="57" alt="Tumblr_l_160730518493502" src="https://github.com/user-attachments/assets/decc43d3-6d23-4386-aa2d-e27b8a423b27" />
+<img width="102" height="57" alt="1000029380" src="https://github.com/user-attachments/assets/0a0c89d1-bc2c-4c15-ad90-8887b491e33e" />
+<img width="102" height="57" alt="Tumblr_l_504714866453620" src="https://github.com/user-attachments/assets/7883bed2-82c2-4eeb-b479-aff8aa51704b" />
+<img width="102" height="57" alt="Tumblr_l_505064620521949" src="https://github.com/user-attachments/assets/d8ee556c-cbe2-4a68-ad10-c46ccbe41b57" />
 </p>
