@@ -1,15 +1,20 @@
-<p align="center">
-  <img width="1200" height="204" alt="1000029388" src="https://github.com/user-attachments/assets/becd6ca4-a9cc-4bf2-a057-bfd3a827cfc6" />
-</p>
+![](https://github.com/user-attachments/assets/becd6ca4-a9cc-4bf2-a057-bfd3a827cfc6)
 
 ㅤ
 
 <p align="center">
-  <sup>strictly w2i⠀⠀c+h ok if same fandom⠀⠀mostly afk <br/>
+  <sup>strictly w2i⠀⠀c+h ok if same fandom⠀⠀mostly afk 
+</br>
   <a href="https://mercyangel.atabook.org/">ata</a>ㅤㅤ<a href="https://pronouns.cc/@kmsyaoi">prns.cc</a></sup>
 </p>
 
-ㅤ
+#
+<p align="center">INT
+</br>
+
+<p align="center"><sup>POSTAL, Resident Evil, Hetalia, Bully Scholarship, Manhunt, BSD, Your Turn To Die, Call of Duty (newbie sigh), etc.
+
+</br>
 
 <p align="center">
   <img width="102" height="57" alt="Tumblr_l_160712875161193" src="https://github.com/user-attachments/assets/40d084ee-4447-41b6-87d3-c3edee4c6f34" />
