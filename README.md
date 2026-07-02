@@ -12,7 +12,7 @@
 <p align="center">INT
 </br>
 
-<p align="center"><sup>POSTAL, Resident Evil, Hetalia, Bully Scholarship, Manhunt, BSD, Your Turn To Die, Call of Duty (newbie sigh), etc.
+<p align="center"><sup>POSTAL, Resident Evil, Hetalia, Bully Scholarship, Manhunt, BSD, Your Turn To Die, Call of Duty, Homestuck, etc.
 
 </br>
 
