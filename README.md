@@ -12,7 +12,7 @@
 <p align="center">interests
 </br>
 
-<p align="center"><sup>POSTAL, Resident Evil, Hetalia, Bully Scholarship, BSD, Your Turn To Die, Homestuck, Zero Day, Red Cross nurses, etc.
+<p align="center"><sup>POSTAL, Resident Evil, Hetalia, Bully Scholarship, BSD, Your Turn To Die, Homestuck, Zero Day, Manhunt, Red Cross nurses, etc.
 </br>
 <p align="center"><sup>eurobeat, thaibodydump, Decalius, rumahsakit, eurodance, happy hardcore/happy trance, Girls Rituals/Devi Mccallion, Slank + more</sup>
 
