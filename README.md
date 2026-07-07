@@ -2,11 +2,7 @@
 
 ㅤ
 
-<p align="center">
-  <sup>strictly w2i⠀⠀c+h ok if same fandom⠀⠀mostly afk 
-</br>
-  <a href="https://mercyangel.atabook.org/">ata</a>ㅤㅤ<a href="https://pronouns.cc/@postal1">prns.cc</a></sup>
-</p>
+<p align="center"><a href="https://mercyangel.atabook.org/">atabook</a>ㅤ<a href="https://pronouns.cc/@postal1">prns.cc</a></p>
 
 #
 <p align="center">interests
