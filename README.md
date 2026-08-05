@@ -8,9 +8,9 @@
 <p align="center">interests
 </br>
 
-<p align="center"><sup>POSTAL, Resident Evil, Hetalia, Bully Scholarship, BSD, Your Turn To Die, Homestuck, Zero Day, Manhunt, Medical/Red Cross nurses, etc.
+<p align="center"><sup>POSTAL, Resident Evil, Hetalia, Bully Scholarship, For You Satan, Your Turn To Die, Zero Day, Manhunt, Medical/Red Cross nurses, etc.
 </br>
-<p align="center"><sup>eurobeat, thaibodydump, Decalius, rumahsakit, eurodance, happy hardcore/happy trance, Girls Rituals/Devi Mccallion, Slank + more</sup>
+<p align="center"><sup>lifelover, Decalius, Trollheim, Psychonaut 4, windir, thaibodydump, happy hardcore/happy trance + more (recommend me some dsbm/bm bands!)</sup>
 
 </br>
 
