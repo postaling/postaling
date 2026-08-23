@@ -5,10 +5,11 @@
 <p align="center"><a href="https://mercyangel.atabook.org/">atabook</a>ㅤ<a href="https://pronouns.cc/@postal1">prns.cc</a></p>
 
 #
+<p align="center"><sup>ㅤstrictly w2i, c+h ok if same fandom. mostly spectating. sign atabook . . . ^.^</sup>
 <p align="center">interests
 </br>
 
-<p align="center"><sup>POSTAL, Rick & Morty, Resident Evil, Hetalia, Bully Scholarship, For You Satan, Your Turn To Die, Zero Day, Manhunt, Medical/Red Cross nurses, etc.
+<p align="center"><sup>POSTAL, Rick & Morty, Resident Evil, Hetalia, Bully Scholarship, For You Satan, Zero Day, Manhunt, Medical/Red Cross nurses, etc.
 </br>
 
 <p align="center">
