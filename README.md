@@ -8,10 +8,7 @@
 <p align="center">interests
 </br>
 
-<p align="center"><sup>POSTAL, Resident Evil, Hetalia, Bully Scholarship, For You Satan, Your Turn To Die, Zero Day, Manhunt, Medical/Red Cross nurses, etc.
-</br>
-<p align="center"><sup>lifelover, Decalius, Trollheim, Psychonaut 4, windir, thaibodydump, happy hardcore/happy trance + more (recommend me some dsbm/bm bands!)</sup>
-
+<p align="center"><sup>POSTAL, Rick & Morty, Resident Evil, Hetalia, Bully Scholarship, For You Satan, Your Turn To Die, Zero Day, Manhunt, Medical/Red Cross nurses, etc.
 </br>
 
 <p align="center">
