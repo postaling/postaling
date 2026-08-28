@@ -5,7 +5,7 @@
 <p align="center"><a href="https://mercyangel.atabook.org/">atabook</a>ㅤ<a href="https://pronouns.cc/@postal1">prns.cc</a></p>
 
 #
-<p align="center"><sup>ㅤstrictly w2i, c+h ok if same fandom. mostly spectating. sign atabook . . . ^.^</sup>
+<p align="center"><sup>ㅤstrictly w2i, c+h + int especially same fandom! mostly spectating unless you int first. sign atabook . . . ^.^</sup>
 <p align="center">interests
 </br>
 
